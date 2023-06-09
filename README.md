@@ -7,4 +7,4 @@ You can reach me at Discord cau#0405 (Don't)
 This profile is (probably) going to be empty for the rest of the year
 Quero dinheiro sem trabalhar!
 ┗━━━━━━━━━━━━━━━━━━━━━━━━┛
-<img src="https://i.makeagif.com/media/7-21-2015/ojEuNo.gif">
+
