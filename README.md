@@ -15,4 +15,4 @@
 
 ┗━━━━━━━━━━━━━━━━━━━━━━━━┛
 
-<img scr="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ5t9yY7TZgviOHLkg2Xjqig-lpoTLGN_1MyQ&usqp=CAU">
+<img scr="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ5t9yY7TZgviOHLkg2Xjqig-lpoTLGN_1MyQ&usqp=CAU"
