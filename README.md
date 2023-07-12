@@ -7,7 +7,7 @@
 
 * I have no idea of what I'm doing
 
-* You can reach me at Discord cau#0405 (Don't)
+* You can reach me at Discord 9cau (Don't)
 
 * This profile is (probably) going to be empty for the rest of the year
 
