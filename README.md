@@ -3,7 +3,7 @@
 
 * I'm Cau
 
-* 16 years old (Going to kill myself before I turn 20)
+* 17 years old ()
 
 * I have no idea of what I'm doing
 
