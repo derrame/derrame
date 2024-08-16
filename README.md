@@ -1,11 +1,11 @@
 # sai dagui
 ┏━━━━━━━━━━━━━━━━━━━━━━━━┓
 
-* Cau
+* Eu sou o Cau
 
-* 17 
+* 17 anos 
 
-* blablablablablabl
+* blablablablablabl 
 
 * Discord para contato: 9cau
 
