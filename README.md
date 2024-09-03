@@ -1,9 +1,9 @@
-# sai dagui
+#  ฅ^•ﻌ•^ฅ
 ┏━━━━━━━━━━━━━━━━━━━━━━━━┓
 
 * Eu sou o Cau
 
-* 17 anos 
+* 17 anos (29.01.2007)
 
 * blablablablablabl 
 
