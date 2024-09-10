@@ -1,11 +1,7 @@
 #  ฅ^•ﻌ•^ฅ
 ┏━━━━━━━━━━━━━━━━━━━━━━━━┓
 
-* Eu sou o Cau
-
-* 17 anos (29.01.2007)
-
-* blablablablablabl 
+* Eu sou o Cau, tenho 17 anos (29.01.2007) e estudo no Senac Distrito Criativo
 
 * Discord para contato: 9cau
 
